@@ -1,0 +1,4 @@
+-kotlet
+-a patty but with potato
+-fry the patties
+-and enjoy
